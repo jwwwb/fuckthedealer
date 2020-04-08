@@ -1,0 +1,2 @@
+# fuckthedealer
+Quarantine fun
